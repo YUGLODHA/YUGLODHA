@@ -1,6 +1,6 @@
 SUP
 I AM YUG and i am only 13 year old looking to beacome a game dev in the furture
-but if i will thats gods' pland and here are some random thoughs:
+but if i will thats gods' plan
 
 
 <!---
